@@ -1,3 +1,4 @@
 # My First Repository
 
-Nutsongwat Cheawka
+Hale luyaa~~~
+Hale Hele Haha 
